@@ -1,1 +1,0 @@
-# Oui_Ad_Good_Resources
